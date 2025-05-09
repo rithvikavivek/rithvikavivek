@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rithvikavivek
-- 👀 I’m interested in New Inovations
+- 👀 I’m interested in New Innovations
 - 🌱 I’m currently learning B/E-Computer Engineering
 
 
